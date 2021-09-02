@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Mordex17
+- 👀 I’m interested in ...games
+- 🌱 I’m currently learning ...anything 
+- 📫 How to reach me ...Instagram
